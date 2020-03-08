@@ -1,2 +1,1 @@
-# v2ray
-订阅地址6666
+https://raw.githubusercontent.com/fggfffgbg/https-aishangyou.tube-/master/README.md
